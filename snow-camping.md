@@ -1,5 +1,3 @@
-Brain Freeze
-
 # Warm clothing
 
 Torso
