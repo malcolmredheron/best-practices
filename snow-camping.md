@@ -55,6 +55,8 @@ Sleeping bag
 - You want a 0F or 15F sleeping bag. Last year 15F was fine with lots of clothing on.
 - A down one will be smaller and lighter but more expensive and must be kept dry.
 
+Use a sleeping bag liner.
+
 Sleeping pad
 - Use two sleeping pads.
 - Bottom: [A closed cell foam pad](http://www.cascadedesigns.com/therm-a-rest/mattresses/fast-and-light/z-lite/product).
