@@ -13,7 +13,7 @@ Legs
   - Bibs are far warmer since they eliminate the gap between the clothing on your legs and on your torso.
 
 Feet
-- Medium-thickness wool socks (not too thick -- you'll just get blisters or loose circulation)
+- Medium-thickness wool socks (not too thick -- you'll just get blisters or lose circulation)
 - Bring multiple pairs of socks. They will get wet.
 - Ski boots or snow boots depending on whether you are skiing or snow shoeing.
 - Some people love down booties for the evening.
